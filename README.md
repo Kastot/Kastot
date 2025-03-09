@@ -1,3 +1,1 @@
-Hello, I am kastot or Emiraek
-I program, hack, and play chess. 
-I am new to hacking.
+I am that one person who did that one thing with that one guy at that one place with that one car with that one built in computer which had linux "Arch Btw" on that one road.
