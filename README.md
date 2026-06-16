@@ -1,1 +1,1 @@
-Obama is a fake person, who has no last name.
+I'm a guy who guys all the time.
